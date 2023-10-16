@@ -15,7 +15,7 @@ This category includes the harassment by higher officials such as supervisors, m
 This category mainly include the harassment and behaviour of your co-workers/colleagues, people around you in the office.  
 * Cracking vulgar jokes in the office.
 * Inappropriate touching/rubbing.
-* Constant stairing.
+* Constantly staring someone.
 * Repeatedly asking for something despite being denied earlier.
 * Passing comments of physical appearance / dress.
 * Visually harassing through posters, screensavers.
