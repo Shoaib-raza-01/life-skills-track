@@ -12,7 +12,8 @@ There are four key ingredients of growth mindest:
 * **Efforts** : Useful for growth
 * **Challenges** : Opportunity to learn
 * **Mistake** : Not about being bad, but learning from mistakes
-* **Feedback** : Use it to improve
+* **Feedback** : Use it to improve.
+
 Growth mindset believes that skills and intelligence are grown and developed as ability to learn changes with efforts.
 
 
